@@ -1,1 +1,1 @@
-# Trabalho Final feito com Arthur Teixeita e Max
+# Trabalho Final feito com Arthur Teixeira e Max
